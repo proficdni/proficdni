@@ -1,10 +1,12 @@
+<sup>☆ P.S if this github is on my pony then mdni!</sup>
+
 <details>
 
 <summary>click for pt interaction status:</summary>
 
 🟢/Online : Interactions encouraged, prob in a good mood! More likely ontab!
 
-🌙/Away : Interactions still encouraged, but w2i pref! Likely offtab or i forgot to change since this is usually my to-go to status!
+🌙/Away : Interactions still encouraged, but w2i pref! Likely offtab or I just didn't change it since this is usually my to-go to status!
 
 ❔/Looking for Chat : Interactions even more encouraged, talk to me!
 
@@ -14,8 +16,6 @@
 
 ![](https://i.pinimg.com/1200x/a5/58/d5/a558d5ac0511b568302148a29d278d5b.jpg)
 # 🪼 Jelly or Toby/Tobias ☆
-
-c+h at any time unless specified otherwise in name!
 
 not making fancy! uhhh dni :
 
