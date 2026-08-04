@@ -10,7 +10,7 @@
 
 ❔/Looking for Chat : Interactions even more encouraged, talk to me!
 
-🔴/busy : Either just don't interact or interact with extra caution and care, likely cranky, upset, moody etc etc. Or i'm just with a friend and prefer minimilised interactions. You will notice if I'm in a good mood or not, so just w2i if you want to interact.
+🔴/busy : Either just don't interact or interact with extra caution and care, likely cranky, upset, moody, severely unstable etc etc. Or i'm just with a friend and prefer minimilised interactions. You will notice if I'm in a good mood or not, so just w2i if you want to interact.
 </details>
 
 
