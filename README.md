@@ -19,6 +19,8 @@
 
 not making fancy! uhhh dni :
 
+plss dni if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!)
+
 [basic dni](https://dni-criteria.carrd.co/)
 
 Dni if you're going to talk to me to bring up old drama or incidents since I like to put stuff behind me and grow as a person instead of sulking on my past misdoings..!
