@@ -15,11 +15,14 @@
 
 
 ![](https://i.pinimg.com/1200x/a5/58/d5/a558d5ac0511b568302148a29d278d5b.jpg)
-# 🪼 Jelly or Toby/Tobias ☆ Soap, Xiao and Ticci Toby fictkin!
+# 🪼 Jelly or Toby/Tobias ☆
+Soap, Xiao and Ticci Toby fictkin !
+
+---
 
 not making fancy! uhhh dni :
 
-plss dni if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!)
+plss **dni** if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost or ccxcc ships r ok!**
 
 [basic dni](https://dni-criteria.carrd.co/)
 
