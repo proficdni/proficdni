@@ -22,7 +22,7 @@ Soap, Xiao and Ticci Toby fictkin !
 
 not making fancy! uhhh dni :
 
-plss **dni** if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost or ccxcc ships r ok!**
+plss **dni** if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost r ok!**
 
 [basic dni](https://dni-criteria.carrd.co/)
 
