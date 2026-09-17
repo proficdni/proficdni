@@ -20,9 +20,13 @@ Soap, Xiao and Ticci Toby fictkin !
 
 ---
 
+**ALWAYS** interact with caution or extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why.
+
+---
+
 not making fancy! uhhh dni :
 
-plss **dni** if ur a simon "ghost" riley yume! ^_^" (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost r ok!**
+please do **not** interact if ur a simon "ghost" riley yume. (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost r ok i'm just iffy about other ghost yumes**
 
 [basic dni](https://dni-criteria.carrd.co/)
 
@@ -32,7 +36,7 @@ DNI if Lost/TDS or if you're friends/related with her. I don't care. Stay far aw
 
 Dni if you harass people for "fun" or for any reason at all. (unless they're an actual horrid person like a predator)
 
-Proship is a heavy dni if you can't tell by my username. Fiction does affect reality and proshipping (or darkshipping or whatever the fuck to say) makes me uncomfortable !! if you're going to ignore my boundaries and interact with me as a proshipper, do NOT let me know. I WILL MIND MY BUSINESS. I won't harass anyone for what they like, but I'm still allowed to be uncomfortable by it.
+Proship is a heavy dni if you can't tell by my username. Fiction does affect reality and proshipping (or darkshipping or whatever the fuck to say) makes me uncomfortable !! if you're going to ignore my boundaries and interact with me as a proshipper, do NOT let me know. I WILL MIND MY BUSINESS. I won't harass anyone for what they like, I will just block you. But I'm still allowed to be uncomfortable by it.
 
 ___
 🌊
