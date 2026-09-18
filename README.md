@@ -20,7 +20,7 @@ Soap, Xiao and Ticci Toby fictkin !
 
 ---
 
-**ALWAYS** interact with caution or extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why.
+**ALWAYS** interact with caution or extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why. **I block and hide VERY freely.**
 
 ---
 
