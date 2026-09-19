@@ -16,11 +16,13 @@
 
 ![](https://i.pinimg.com/1200x/a5/58/d5/a558d5ac0511b568302148a29d278d5b.jpg)
 # 🪼 **Jelly**, **Finn** or Toby/Tobias ☆
-Soap, Xiao and Ticci Toby fictkin !
+Soap, Xiao and Ticci Toby fictionkin
 
 ---
 
-**ALWAYS** interact with caution or extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why. **I block and hide VERY freely.**
+**ALWAYS** interact with caution or even extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why. **I block and hide VERY freely, whether you're on my dni list or not.**
+
+**Sometimes I'll turn my public chat off, I'll go on offline mode, go on other servers. This is to protect my space.**
 
 ---
 
@@ -28,6 +30,9 @@ not making fancy! uhhh dni :
 
 please do **not** interact if ur a simon "ghost" riley yume. (U can find my F/O list in my pronouns.cc !!!) **ghoap, priceghost, gazghost r ok i'm just iffy about other ghost yumes**
 
+<details>
+
+<summary>proper dni list</summary>
 [basic dni](https://dni-criteria.carrd.co/)
 
 Dni if you're going to talk to me to bring up old drama or incidents since I like to put stuff behind me and grow as a person instead of sulking on my past misdoings..!
@@ -37,7 +42,7 @@ DNI if Lost/TDS or if you're friends/related with her. I don't care. Stay far aw
 Dni if you harass people for "fun" or for any reason at all. (unless they're an actual horrid person like a predator)
 
 Proship is a heavy dni if you can't tell by my username. Fiction does affect reality and proshipping (or darkshipping or whatever the fuck to say) makes me uncomfortable !! if you're going to ignore my boundaries and interact with me as a proshipper, do NOT let me know. I WILL MIND MY BUSINESS. I won't harass anyone for what they like, I will just block you. But I'm still allowed to be uncomfortable by it.
-
+</details>
 ___
 🌊
 
