@@ -25,22 +25,7 @@
 
 ---
 
-not making fancy. dni list :
-
-<details>
-
-<summary>click here to open dni list.</summary>
-basic dni = https://dni-criteria.carrd.co/
-
-Dni if you're going to talk to me to bring up old drama or incidents since I like to put stuff behind me and grow as a person instead of sulking on my past misdoings..!
-
-DNI if Lost/TDS or if you're friends/related with her. I don't care. Stay far away from me.
-
-Dni if you harass people for "fun" or for any reason at all. (unless they're an actual horrid person like a predator)
-
-Proship is a heavy dni if you can't tell by my username. Fiction does affect reality and proshipping (or darkshipping or whatever the fuck to say) makes me uncomfortable. if you're going to ignore my boundaries and interact with me as a proshipper, do NOT let me know. I WILL MIND MY BUSINESS. I won't harass anyone for what they like, I will just block you. But I'm still allowed to be uncomfortable by it. i might have you blocked if you're openly profic though.
-</details>
-
+[Click for dni list](https://rentry.co/tobyfishdnilist)
 
 🔌
 
