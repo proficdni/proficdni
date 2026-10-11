@@ -14,10 +14,8 @@
 </details>
 
 
-![](https://i.pinimg.com/736x/df/9d/86/df9d86e43728c765eabe92b636c0f853.jpg)
-# 🪼 **Jelly**, **Finn** or Toby/Tobias. ☆
-
----
+![](https://i.pinimg.com/736x/e9/ce/1a/e9ce1a91e58a39335ce36b2f35fd5603.jpg)
+# 🫀 **Jelly**, **Finn** or Toby/Tobias. ☆
 
 **ALWAYS** interact with caution or even extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why. **I block and hide VERY freely, whether you're on my dni list or not.**
 
