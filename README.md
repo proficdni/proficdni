@@ -15,13 +15,13 @@
 
 
 ![](https://i.pinimg.com/1200x/cf/e8/d5/cfe8d5b9e95761346cd240e6da0333e1.jpg)
-# 🫁 **Jelly**, **Ghost**, **Finn** or Toby/Tobias. ☆
+# 🫁 **Cj**, **Jelly**, **Ghost**, **Finn** or Toby/Tobias. ☆
 
 **ALWAYS** interact with caution or even extreme caution. I am severely mentally unstable. I block very freely aswell, though unless you fall under DNI list i'll only hide you. If i have you hidden, don't try to seek out why. **I block and hide VERY freely, whether you're on my dni list or not.**
 
 *Sometimes I'll turn my public chat off, I'll often go on offline mode and sometimes go on other servers. This is to protect my space.*
 
-**Do not try to befriend me. I don't want to make long-term friends. I'm not stable, energetic or interested enough to make and hold bonds between me and others.**
+**Do not try to befriend me. I don't want to make long-term friends. I'm not stable, energetic or interested enough to make and hold bonds between me and others. I'M FINE WITH C+H, I just don't like to talk to non-friends.**
 
 ---
 
